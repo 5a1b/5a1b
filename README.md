@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @5a1b
+- 👀 I’m interested in Ittihad FC
+- 🌱 I’m currently learning EE at KAU
+- 💞️ I’m looking to collaborate on Project - battleship
+- 📫 How to reach me Instagram @5a1b
+- ⚡ Fun fact: Water is H2O
